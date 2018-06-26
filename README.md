@@ -1,3 +1,5 @@
+#FpExperiencies #DawMp03Uf06 #Programació #BasesDeDades
+
 Lluita de Pokémon salvatges
 ==============================
 Tothom coneix la versió edulcorada dels Pokémons que s'ha mostrat en la sèrie o en els jocs però la realitat és molt més crua: Són animals molt salvatges.
