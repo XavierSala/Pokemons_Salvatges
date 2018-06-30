@@ -1,4 +1,4 @@
-#FpExperiencies #DawMp03Uf06 #Programació #BasesDeDades
+#FpInfor #DawMp03Uf06 #Programació #BasesDeDades
 
 Lluita de Pokémon salvatges
 ==============================
